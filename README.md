@@ -8,6 +8,6 @@
 # Attributions
 
 Logo <br>
-https://www.vecteezy.com/vector-art/15033335-planet-orbit-logo-designs-concept-vector-space-orbital-planetary-logo-designs-symbol<br>
+https://pngtree.com/freepng/vector-task-icon_4091626.html<br>
 
 # Notes
